@@ -1,0 +1,1 @@
+# KazMineralInvest-minerals-website-N-MP-OK-I
